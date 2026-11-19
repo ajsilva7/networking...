@@ -1,3 +1,0 @@
-![](../../ATTACH/IMAGES/Pasted%20image%2020261119225902.png)![](../../ATTACH/IMAGES/Pasted%20image%2020261119225920.png)![](../../ATTACH/IMAGES/Pasted%20image%2020261119225821.png)
-
-![](../../ATTACH/IMAGES/Pasted%20image%2020261119225828.png)
